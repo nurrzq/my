@@ -1,2 +1,0 @@
-# my
-Portofolio 22
